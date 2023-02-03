@@ -1,1 +1,1 @@
-Name : Abas Acti Xashi
+Name : Abas Ac Xashi
